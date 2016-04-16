@@ -1,2 +1,1 @@
-# accordion
-fabulous accordion exercise
+😰📝💻✨😍
